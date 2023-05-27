@@ -2,10 +2,15 @@
 
 ## History of JP Morgan:
 •	JP Morgan Chase is one of the largest banking institutions in the world. It was founded in 1799 by Aaron Burr, who was then Vice President of the United States. The bank initially operated as The Manhattan Company, established to provide clean water to New Yorkers.
+
 •	In 1823, The Manhattan Company merged with another bank to form the Merchant's Bank. The Merchant's Bank later became known as the National City Bank of New York. The bank continued to grow and influence, becoming one of the most powerful financial institutions in the world.
+
 •	In 1871, John Pierpont Morgan took control of the banking firm Drexel, Morgan & Co.
+
 •	He renamed it JP Morgan & Co. and began expanding the company's reach and influence.
+
 •	Morgan was instrumental in financing many of America's largest corporations, including General Electric and US Steel.
+
 •	He played a key role in stabilizing the country's financial system during times of crisis such as the Panic of 1907.
 
 ## Current Operations of JP Morgan:
